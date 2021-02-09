@@ -1,5 +1,5 @@
 
-Mekanistic Therapeutics, LLC
+Mekanistic Therapeutics, LLC [🔬🔬]()
 
 U-M Venture Accelerator, 1600 Huron Parkway Ann Arbor, MI 48109
 
